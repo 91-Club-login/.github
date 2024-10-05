@@ -6,7 +6,10 @@ Before logging in, you'll first need to download the app. Since the 91 Club app 
 
 # ⬇️ Process of 91 Club Login & Register ⬇️
 
-## [🔗 Click Here to Login & Register Directly
+[🔗 Click Here to Login & Register Directly
+](https://91club.bet/#/register?invitationCode=565641756148)
+
+[🔗 Click Here to Login & Register Directly
 ](https://91club.bet/#/register?invitationCode=565641756148)
 
 Here’s how to get started for 91 Club Login & Register:
