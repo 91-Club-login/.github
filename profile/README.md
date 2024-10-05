@@ -4,9 +4,9 @@
 
 Before logging in, you'll first need to download the app. Since the 91 Club app is not available on popular app stores like Google Play, you can download the APK file directly from the official 91 Club website.
 
-## ⬇️ Process of 91 Club Login & Register ⬇️
+# ⬇️ Process of 91 Club Login & Register ⬇️
 
-[🔗 Click Here to Login & Register Directly
+## [🔗 Click Here to Login & Register Directly
 ](https://91club.bet/#/register?invitationCode=565641756148)
 
 Here’s how to get started for 91 Club Login & Register:
